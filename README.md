@@ -1,1 +1,1 @@
-# Macroeconomist
+# Economist
